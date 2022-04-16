@@ -1,3 +1,3 @@
 # Git and GitHub onelove
 
-Egor my crush
+Egor my crush <3
